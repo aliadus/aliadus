@@ -1,0 +1,2 @@
+# aliadus
+aliadus sistema mmn
